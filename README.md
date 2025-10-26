@@ -2,7 +2,7 @@ haiii ,, while mostly known as vee, i go by multiple names such as elvyne and ne
 
 come c+h freely if you see me alone don't hesitate to interact with me in whisp! . i usually drop a compliment or crown
 
-i am mainly seen with sai , fei and shrimp (faggot)
+i am mainly seen with sai , fei and shrimp (faggot) and sometimes with vio and mae
 
 <p align="center">
   —
